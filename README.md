@@ -2,7 +2,7 @@
 - 👀 I’m interested in developer
 - soy adminitrador de empresas.
 - Poseo certtficacion en  UTN (universidad tecnolof nacional)
-
+-Tec. superior en Seguridad.
   - 3515594242
 gtorales45@gmail.com
 <!---
